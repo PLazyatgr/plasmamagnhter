@@ -1,0 +1,2 @@
+# plasmamagnhter
+asal asal aja
